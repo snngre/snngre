@@ -1,13 +1,9 @@
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Kosugi&duration=2222&pause=2432&color=F7F7F7&width=435&lines=TAKE+A+CHANCE+WITH+CHAAAANCE+BABY+!+!+!+!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Balsamiq+Sans&size=25&duration=666&pause=888&color=D6F1F7&background=09090B&vCenter=true&multiline=true&repeat=false&width=435&height=122&lines=SNNGRE;20+.+HE+%2F+SHE;ROBLOX+FANARTIST+.)](https://git.io/typing-svg)
 
 <p>
-19 . he/she . for now i'm just here in the safe server since i got banned a while ago lololol<br>
-i don't mind minors interactng with me or anyone in general . thing is that i'd be limited with the interaction and it depends .<br>
-oh yeah proship dni / dnf btw this includes it's branches like dark and comship whatever the hell .<br>
-otherwise i block freely so test your luck
-
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘<br><br>
+[ <a href="https://twitter.com/snngre">TWITTER</a> ], [ <a href="snngre.straw.page">STRAWPAGE</a> ]
 <br>
-<p><a href='https://snngre.tumblr.com'>TUMBLR</a>, <a href='https://twitter.com/snngre'>TWITTER</a><br><br>
-misc stuff i need to put to use <a href='https://roblox.atabook.org'>atabook</a>, <a href='https://neospring.org/@bf'>neospring</a><br>
-^these are rather 2 social networks that are left in the dust go crazy idk
+<br>
+into djcommander / discountedfirerate . big into tds rn im being tdspilled i fucking love tds<br>
+no dni other than proship and basics . other than that i know what to do with the hide button
