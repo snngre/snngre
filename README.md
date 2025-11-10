@@ -2,7 +2,7 @@
 
 <p>
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘<br><br>
-[ <a href="https://twitter.com/snngre">TWITTER</a> ], [ <a href="snngre.straw.page">STRAWPAGE</a> ]
+[ <a href="https://twitter.com/snngre">TWITTER</a> ], [ <a href="https://snngre.straw.page">STRAWPAGE</a> ]
 <br>
 <br>
 just here to visit this hellhole again hiii<br><br>
