@@ -7,4 +7,4 @@
 <br>
 just here to visit this hellhole again hiii<br><br>
 into djcommander / discountedfirerate . big into tds rn im being tdspilled i fucking love tds<br>
-no dni other than proship and basics . other than that i know what to do with the hide button
+no dni other than proship / profic and basics . other than that i know what to do with the hide button<br>
