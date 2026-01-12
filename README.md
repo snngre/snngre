@@ -2,8 +2,7 @@
 
 <p>
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘<br><br>
-[ <a href="https://twitter.com/snngre">TWITTER</a> ], [ <a href="https://snngre.straw.page">STRAWPAGE</a> ],<br>
-[ <a href="https://roblox.atabook.org">SNNGRE.ATABOOK.ORG</a> ] decided to put atabook to use go crazy idk
+[ <a href="https://twitter.com/snngre">TWITTER</a> ], [ <a href="https://snngre.straw.page">STRAWPAGE</a> ], [ <a href="https://snngre.nekoweb.org">NEKOWEB</a> (wip) ]<br>
 <br>
 <br>
 just here to visit this hellhole again hiii<br><br>
