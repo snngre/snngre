@@ -3,10 +3,11 @@
 <p>
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘<br><br>
 [ <a href="https://snngre.nekoweb.org">NEKOWEB</a> ], [ <a href="https://twitter.com/snngre">TWITTER</a> ], [ <a href="https://snngre.straw.page">STRAWPAGE</a> ]<br>
-read nekoweb disclaimer, coded on a 1920x1080 monitor and less compatible for other devices unless zooming out .
+read nekoweb disclaimer, coded on a 1920x1080 monitor and less compatible for laptop devices unless zooming out .<br>
+NOT MOBILE COMPATIBLE IM SO SORRY :sob:
 <br>
 <br>
 just here to visit this hellhole again hiii<br><br>
-into djcommander / discountedfirerate . big into tds rn im being tdspilled i fucking love tds<br>
+into djcommander / discountedfirerate, slimeknight and d3rking<br>
 no dni other than proship / profic and basics . other than that i know what to do with the hide button<br><br><br>
 <img width="100" src="https://komarev.com/ghpvc/?username=snngre&color=100B21&style=flat&label=hellllooooo+:+)" style="max-width: 100%;">
