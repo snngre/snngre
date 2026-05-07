@@ -3,8 +3,9 @@
 <p>
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘<br><br>
 [ <a href="https://snngre.nekoweb.org">NEKOWEB</a> ], [ <a href="https://twitter.com/snngre">TWITTER</a> ], [ <a href="https://snngre.straw.page">STRAWPAGE</a> ]<br>
-read nekoweb disclaimer, coded on a 1920x1080 monitor and less compatible for laptop devices unless zooming out .<br>
-NOT MOBILE COMPATIBLE IM SO SORRY :sob:
+revamped my strawpage, now has both PC and Mobile versions .
+read nekoweb and strawpage disclaimer- this was done on a maximized screen at a 1920x1080 monitor on Opera and less compatible for laptops/minimized screens unless zooming out .
+not compatible for nekoweb on mobile i'm so sorry </3333
 <br>
 <br>
 just here to visit this hellhole again hiii<br><br>
