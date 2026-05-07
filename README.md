@@ -5,7 +5,7 @@
 [ <a href="https://snngre.nekoweb.org">NEKOWEB</a> ], [ <a href="https://twitter.com/snngre">TWITTER</a> ], [ <a href="https://snngre.straw.page">STRAWPAGE</a> ]<br>
 revamped my strawpage, now has both PC and Mobile versions .<br>
 read nekoweb and strawpage disclaimer- this was done on a maximized screen at a 1920x1080 monitor on Opera and less compatible for laptops/minimized screens unless zooming out .<br>
-not compatible for nekoweb on mobile i'm so sorry </3333
+not compatible for mobile on nekoweb i'm so sorry 💔
 <br>
 <br>
 just here to visit this hellhole again hiii<br><br>
