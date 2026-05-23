@@ -2,13 +2,13 @@
 
 <p>
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘<br><br>
-[ <a href="https://snngre.nekoweb.org">NEKOWEB</a> ], [ <a href="https://twitter.com/snngre">TWITTER</a> ], [ <a href="https://snngre.straw.page">STRAWPAGE</a> ]<br>
-revamped my strawpage, now has both PC and Mobile versions .<br>
-read nekoweb and strawpage disclaimer- this was done on a maximized screen at a 1920x1080 monitor on Opera and less compatible for laptops/minimized screens unless zooming out .<br>
+[ <a href="https://snngre.straw.page">STRAWPAGE</a> ] || [ <a href="https://snngre.nekoweb.org">NEKOWEB</a> ] || [ <a href="https://twitter.com/snngre">TWITTER</a> ]<br>
+Revamped my strawpage ! ! Now has both PC and Mobile versions .<br>
+Read nekoweb and strawpage disclaimer- done on a maximized screen at a 1920x1080 monitor on Opera and less compatible for laptops/minimized screens unless zooming out .<br>
 not compatible for mobile on nekoweb i'm so sorry 💔
 <br>
 <br>
-just here to visit this hellhole again hiii<br><br>
-into djcommander / discountedfirerate, slimeknight and d3rking<br>
-no dni other than proship / profic and basics . other than that i know what to do with the hide button<br><br><br>
+Just here to visit this hellhole again hiii ( update IM BACK IN THE BUILDING AGAINNNNNNNNNNNN )<br><br>
+Into DJCommander / DiscountedFirerate and just Tower Defense Simulator in general + unlisted<br>
+No DNI other than Pro-ship / Pro-fic and the basics . Other than that I know what to do with the hide button<br><br><br>
 <img width="100" src="https://komarev.com/ghpvc/?username=snngre&color=100B21&style=flat&label=hellllooooo+:+)" style="max-width: 100%;">
