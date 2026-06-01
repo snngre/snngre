@@ -11,4 +11,5 @@ not compatible for mobile on nekoweb i'm so sorry 💔
 Just here to visit this hellhole again hiii ( update IM BACK IN THE BUILDING AGAINNNNNNNNNNNN )<br><br>
 Into DJCommander / DiscountedFirerate and just Tower Defense Simulator in general + unlisted<br>
 No DNI other than Pro-ship / Pro-fic and the basics . Other than that I know what to do with the hide button<br><br><br>
+also dni if you hate rabbids GRRRR /joking <br><br>
 <img width="100" src="https://komarev.com/ghpvc/?username=snngre&color=100B21&style=flat&label=hellllooooo+:+)" style="max-width: 100%;">
