@@ -12,5 +12,5 @@ Just here to visit this hellhole again hiii ( update IM BACK IN THE BUILDING AGA
 Into DJCommander / DiscountedFirerate and just Tower Defense Simulator in general + unlisted<br>
 No DNI other than Pro-ship / Pro-fic and the basics . Other than that I know what to do with the hide button<br><br><br>
 if you get to read this, hi ! here to note that you should not use the well-known pastebin markdown service that is Rentry(dot)co anymore- even with an adblocker- as the owner, Matt, is a zionist .<br>
-suggestions: carrd, strawpage, fluffle(dot)cc, nekoweb, listography<br><br>
+alternatives: fluffle(dot)cc, carrd, strawpage, nekoweb, listography<br><br>
 <img width="100" src="https://komarev.com/ghpvc/?username=snngre&color=100B21&style=flat&label=hellllooooo+:+)" style="max-width: 100%;">
