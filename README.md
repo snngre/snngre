@@ -1,3 +1,5 @@
+<p style="font-size: 23px;">VOTE 'TOWER DEFENSE SIMULATOR' FOR BEST STRATEGY GAME ON <a href="https://www.roblox.com/games/95047916580305/The-Block">THE BLOCK</a> FOR ROBLOX INNOVATION AWARDS 2026 ! !</p>
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Grandstander&size=25&duration=1222&pause=555&color=E4F1D5&background=100B213B&vCenter=true&multiline=true&width=435&height=122&lines=SNNGRE+.';20+%7C%7C+ANY+PRONOUNS;ROM%2FENG+%7C%7C+FANARTIST)](https://git.io/typing-svg)
 
 <p>
